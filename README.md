@@ -1,0 +1,2 @@
+# newhsk2review02
+LCN NEW HSK2 PALEMBANG
